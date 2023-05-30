@@ -22,7 +22,6 @@
   - [Key Performance Indicators (KPIs) for Measuring Success](chapter-6-1.md)
   - [Qualitative and Quantitative Methods for Evaluation](chapter-6-2.md)
 - [Chapter 7: Case Studies of Successful Career Coaching and Mentoring](chapter-7.md)
-  - [Real-life Examples of Individuals who have Successfully Achieved their Career Goals with the Help of Coaching and Mentoring](chapter-7-1.md)
 - [Chapter 8: Ethical Considerations in Career Coaching and Mentoring](chapter-8.md)
   - [Understanding Ethical Guidelines and Standards](chapter-8-1.md)
   - [Balancing Individual and Organizational Interests](chapter-8-2.md)
