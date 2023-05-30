@@ -14,7 +14,7 @@ Throughout the book, we'll also feature stories and insights from real-world coa
 
 Whether you're a recent graduate just starting out in your career, a mid-career professional looking to make a change, or an experienced leader seeking to enhance your skills and abilities, this book is for you. With the insights and guidance you'll find here, you'll be well on your way to finding the right support for your goals, and achieving success in your career.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
