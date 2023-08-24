@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-==================================================================================================================
 
 In addition to key performance indicators (KPIs), there are two main methods for evaluating the success of career coaching and mentoring programs: qualitative and quantitative. In this chapter, we will explore these methods in more detail.
 

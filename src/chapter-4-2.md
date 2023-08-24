@@ -1,5 +1,3 @@
-Evaluating Potential Coaches and Mentors
-======================================================================================
 
 Finding the right coach or mentor is a critical step in achieving your career goals. In this chapter, we will explore strategies for evaluating potential coaches and mentors to ensure that you find someone who can provide effective support and guidance.
 

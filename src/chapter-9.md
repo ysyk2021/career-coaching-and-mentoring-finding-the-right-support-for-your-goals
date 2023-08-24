@@ -1,5 +1,3 @@
-Chapter 9: Future Trends in Career Coaching and Mentoring
-=========================================================
 
 The field of career coaching and mentoring is constantly evolving, with new technologies and innovations emerging every day. This chapter will explore some of the future trends in career coaching and mentoring, including emerging technologies and predictions for the future.
 

@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-======================================================================================================================
 
 Key performance indicators (KPIs) are metrics used to measure the success of a career coaching and mentoring program. In this chapter, we will explore some common KPIs for measuring success in career coaching and mentoring.
 

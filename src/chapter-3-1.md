@@ -1,5 +1,3 @@
-Assessing Strengths and Weaknesses
-======================================================================================
 
 In order to achieve success in your career, it's important to have a clear understanding of your strengths and weaknesses. In this chapter, we will explore strategies for assessing your strengths and weaknesses, and using that information to set goals and identify areas for improvement.
 

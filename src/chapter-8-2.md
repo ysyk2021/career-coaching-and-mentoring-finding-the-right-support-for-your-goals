@@ -1,5 +1,3 @@
-Balancing Individual and Organizational Interests
-=====================================================================================================================
 
 While career coaching and mentoring can be a valuable tool for individuals seeking to achieve their career goals, coaches and mentors must also consider the interests of the organizations they work with. In this chapter, we will explore ethical considerations related to balancing individual and organizational interests.
 

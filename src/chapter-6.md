@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Career Coaching and Mentoring
-=============================================================
 
 Measuring success is an important part of any career coaching and mentoring program. In this chapter, we will explore key performance indicators (KPIs) for measuring success, as well as qualitative and quantitative methods for evaluation.
 

@@ -1,5 +1,3 @@
-Predictions for the Future of Career Coaching and Mentoring
-======================================================================================================================
 
 As the world of work continues to evolve, career coaching and mentoring must also adapt to meet the changing needs of individuals and organizations. In this chapter, we will explore some of the future trends in career coaching and mentoring.
 
@@ -27,5 +25,4 @@ Conclusion
 ----------
 
 Career coaching and mentoring are dynamic fields that must adapt to meet the changing needs of individuals and organizations. By focusing on soft skills, leveraging new technologies, promoting diversity and inclusion, and expanding their focus to include wellbeing, career coaches and mentors can help individuals achieve their career goals and thrive in the ever-changing world of work.
-
 

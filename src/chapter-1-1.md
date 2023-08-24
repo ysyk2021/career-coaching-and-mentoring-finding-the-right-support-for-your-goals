@@ -1,5 +1,3 @@
-Importance of Career Coaching and Mentoring
-====================================================================
 
 Career coaching and mentoring are important resources for individuals seeking to achieve their career goals. In this chapter, we will explore the importance of career coaching and mentoring, and how they can help you unlock your full potential in your career.
 

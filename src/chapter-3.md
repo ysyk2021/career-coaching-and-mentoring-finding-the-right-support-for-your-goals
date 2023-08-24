@@ -1,5 +1,3 @@
-Chapter 3: Identifying Your Career Goals and Needs
-==================================================
 
 Identifying your career goals and needs is critical for achieving success in your career. In this chapter, we will explore strategies for assessing your strengths and weaknesses, setting SMART goals, and identifying areas for improvement.
 

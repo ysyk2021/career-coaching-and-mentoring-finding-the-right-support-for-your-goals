@@ -1,5 +1,3 @@
-Identifying Areas for Improvement
-=====================================================================================
 
 In addition to setting SMART goals, it's important to identify areas for improvement in your career. In this chapter, we will explore strategies for identifying these areas and developing a plan for improvement.
 

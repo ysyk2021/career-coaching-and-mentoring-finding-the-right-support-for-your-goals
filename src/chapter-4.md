@@ -1,5 +1,3 @@
-Chapter 4: Finding the Right Coach or Mentor
-============================================
 
 Finding the right coach or mentor is critical for achieving your career goals. In this chapter, we will explore strategies for identifying different types of coaches and mentors, evaluating potential coaches and mentors, and building effective relationships with them.
 

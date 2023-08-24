@@ -1,5 +1,3 @@
-Chapter 2: Understanding Career Coaching and Mentoring
-======================================================
 
 Career coaching and mentoring are powerful tools for achieving success in your career. In this chapter, we will explore the definition and characteristics of career coaching and mentoring, the benefits of working with a coach or mentor, and common myths about coaching and mentoring.
 

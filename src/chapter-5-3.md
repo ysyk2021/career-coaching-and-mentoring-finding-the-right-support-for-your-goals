@@ -1,5 +1,3 @@
-Improving Work-life Balance and Well-being
-=============================================================================================================
 
 Career coaching and mentoring are not just about achieving professional goals; they can also help individuals improve their work-life balance and overall well-being. In this chapter, we will explore how coaching and mentoring can contribute to a more balanced and fulfilling life.
 

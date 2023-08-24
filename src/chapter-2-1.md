@@ -1,5 +1,3 @@
-Definition and Characteristics of Career Coaching and Mentoring
-=======================================================================================================================
 
 Career coaching and mentoring are two powerful tools for achieving success in your career. In this chapter, we will explore the definition and characteristics of career coaching and mentoring, and how they can help you achieve your career goals.
 

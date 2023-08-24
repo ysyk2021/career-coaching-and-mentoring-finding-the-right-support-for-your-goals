@@ -1,5 +1,3 @@
-Identifying Types of Coaches and Mentors
-======================================================================================
 
 Finding the right coach or mentor is critical for achieving your career goals. In this chapter, we will explore the different types of coaches and mentors that are available, so you can find the one that best fits your needs.
 

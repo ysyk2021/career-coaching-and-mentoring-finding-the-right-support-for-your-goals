@@ -1,5 +1,3 @@
-Addressing Potential Risks and Consequences of Career Coaching and Mentoring
-================================================================================================================================================
 
 As with any professional relationship, there are ethical considerations that must be taken into account when engaging in career coaching and mentoring. In this chapter, we will explore some of the potential risks and consequences of career coaching and mentoring, and strategies for addressing ethical considerations.
 

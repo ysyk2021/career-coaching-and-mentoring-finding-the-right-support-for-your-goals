@@ -1,5 +1,3 @@
-Common Myths about Coaching and Mentoring
-=================================================================================================
 
 Despite the many benefits of career coaching and mentoring, there are still some common myths that can prevent individuals from seeking out these valuable resources. In this chapter, we will explore and debunk some of these myths.
 

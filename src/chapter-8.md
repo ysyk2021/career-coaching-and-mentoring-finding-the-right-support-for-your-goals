@@ -1,5 +1,3 @@
-Chapter 8: Ethical Considerations in Career Coaching and Mentoring
-==================================================================
 
 Career coaching and mentoring involve a high level of trust between the coach or mentor and the individual being coached or mentored. As such, it is important for coaches and mentors to adhere to ethical guidelines and standards to ensure that they are providing a safe and effective environment for their clients. In this chapter, we will explore some of the key ethical considerations in career coaching and mentoring.
 

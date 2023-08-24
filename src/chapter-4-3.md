@@ -1,5 +1,3 @@
-Building Effective Relationships with Coaches and Mentors
-=======================================================================================================
 
 Finding the right coach or mentor is critical for achieving your career goals. In this chapter, we will explore strategies for finding the right coach or mentor and building effective relationships with them.
 

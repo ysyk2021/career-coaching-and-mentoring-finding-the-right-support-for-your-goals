@@ -1,5 +1,3 @@
-Setting SMART Goals
-=======================================================================
 
 Before seeking out coaching or mentoring, it's important to identify your career goals and needs. In this chapter, we will explore strategies for setting SMART goals, which can help you clarify your objectives and define a clear path to achieving them.
 
@@ -29,5 +27,4 @@ Conclusion
 ----------
 
 Setting SMART goals is an important step in achieving success in your career. By breaking down your long-term goals into smaller, more manageable objectives, you can create a clear path to achieving them. Using the SMART framework can help ensure that your goals are specific, measurable, achievable, relevant, and time-bound. With the right support and guidance, you can achieve your career goals and reach your full potential.
-
 
