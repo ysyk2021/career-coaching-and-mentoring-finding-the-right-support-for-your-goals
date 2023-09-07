@@ -12,3 +12,7 @@ Throughout the book, we'll also feature stories and insights from real-world coa
 Whether you're a recent graduate just starting out in your career, a mid-career professional looking to make a change, or an experienced leader seeking to enhance your skills and abilities, this book is for you. With the insights and guidance you'll find here, you'll be well on your way to finding the right support for your goals, and achieving success in your career.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

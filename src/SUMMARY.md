@@ -31,3 +31,4 @@
   - [Predictions for the Future of Career Coaching and Mentoring](chapter-9-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
