@@ -1,5 +1,4 @@
-Chapter 6: Increasing Job Satisfaction and Fulfillment
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Job satisfaction and fulfillment are essential components of a successful and rewarding career. In this chapter, we delve into how career coaching and mentoring can play a pivotal role in enhancing your overall job satisfaction and helping you find fulfillment in your professional life.
 

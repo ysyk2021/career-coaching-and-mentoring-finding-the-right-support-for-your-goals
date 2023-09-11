@@ -1,5 +1,4 @@
-Chapter 5: Improving Work-Life Balance and Well-being
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of career success, it's crucial not to overlook the importance of work-life balance and well-being. This chapter explores strategies and insights on how career coaching and mentoring can contribute to a more balanced, fulfilling, and sustainable professional life.
 

@@ -1,5 +1,4 @@
-Chapter 12: Addressing Potential Risks and Consequences of Career Coaching and Mentoring
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 While career coaching and mentoring can be incredibly beneficial, it's essential to acknowledge and mitigate potential risks and consequences that can arise from these relationships. In this chapter, we explore the darker side of coaching and mentoring and provide guidance on how to navigate these challenges.
 

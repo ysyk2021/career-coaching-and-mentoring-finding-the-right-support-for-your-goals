@@ -1,5 +1,4 @@
-Chapter 5: Building Effective Relationships with Coaches and Mentors
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective relationships with your career coaches and mentors are the cornerstone of a successful coaching and mentoring journey. This chapter explores the key principles and strategies for establishing and maintaining productive and fulfilling relationships with your career support network.
 

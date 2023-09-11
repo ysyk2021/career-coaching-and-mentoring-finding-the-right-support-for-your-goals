@@ -1,5 +1,4 @@
-Chapter 11: Predictions for the Future of Career Coaching and Mentoring
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The landscape of career coaching and mentoring is constantly evolving, driven by changes in technology, workplace dynamics, and societal trends. In this chapter, we gaze into the crystal ball to explore some predictions for the future of career coaching and mentoring.
 

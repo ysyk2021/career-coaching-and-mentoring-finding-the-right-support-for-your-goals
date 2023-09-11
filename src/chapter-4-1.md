@@ -1,5 +1,4 @@
-Chapter 3: Identifying Types of Coaches and Mentors
-===================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to find the right support for your career goals, it's essential to understand the different types of coaches and mentors available to you. Each type brings unique skills, perspectives, and approaches to the table. This chapter explores the various categories of coaches and mentors to help you make informed choices about your career development.
 

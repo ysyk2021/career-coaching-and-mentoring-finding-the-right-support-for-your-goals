@@ -1,5 +1,4 @@
-Chapter 6: Qualitative and Quantitative Methods for Evaluation
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Evaluating the effectiveness of career coaching and mentoring programs is essential to ensure that individuals receive the right support for their goals. In this chapter, we explore both qualitative and quantitative methods for assessing the impact and outcomes of career coaching and mentoring.
 

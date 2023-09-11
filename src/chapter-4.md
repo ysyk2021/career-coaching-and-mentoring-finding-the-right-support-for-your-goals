@@ -1,5 +1,4 @@
-Chapter 4: Finding the Right Coach or Mentor
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Selecting the right coach or mentor is a critical step in your journey towards personal and professional growth. This chapter explores the process of identifying, evaluating, and building effective relationships with coaches and mentors who can provide the guidance and support you need.
 

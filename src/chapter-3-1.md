@@ -1,5 +1,4 @@
-Chapter 5: Assessing Strengths and Weaknesses
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Understanding your strengths and weaknesses is essential for personal and professional development. In this chapter, we delve into the process of self-assessment and explore various tools and techniques that can help you gain insights into your unique qualities and areas for improvement.
 

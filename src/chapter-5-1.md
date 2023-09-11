@@ -1,5 +1,4 @@
-Chapter 7: Enhancing Job Opportunities and Advancement
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Unlocking new job opportunities and advancing in your career are common aspirations. This chapter explores how career coaching and mentoring can be powerful tools for not only identifying but also seizing these opportunities, ultimately propelling you toward professional success.
 

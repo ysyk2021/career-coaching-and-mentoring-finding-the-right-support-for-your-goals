@@ -1,5 +1,4 @@
-Chapter 4: The Benefits of Working with a Coach or Mentor
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The decision to work with a career coach or mentor can significantly impact your professional and personal growth. In this chapter, we explore the multitude of benefits that individuals can gain from engaging with these experienced guides on their career journeys.
 

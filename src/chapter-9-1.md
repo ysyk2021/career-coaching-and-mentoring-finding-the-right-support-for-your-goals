@@ -1,5 +1,4 @@
-Chapter 10: Emerging Technologies and Innovations in the Field
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 The field of career coaching and mentoring is continuously evolving, driven by technological advancements and innovative approaches. In this chapter, we explore the latest trends and technologies shaping the landscape of career support and how they can benefit both coaches and mentees.
 

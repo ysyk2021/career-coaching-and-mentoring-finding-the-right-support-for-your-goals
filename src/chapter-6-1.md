@@ -1,5 +1,4 @@
-Chapter 7: Key Performance Indicators (KPIs) for Measuring Success
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of effective career coaching and mentoring, it's essential to establish clear Key Performance Indicators (KPIs) to measure the success of your efforts. This chapter delves into the critical KPIs that can help you evaluate and enhance your career development journey.
 

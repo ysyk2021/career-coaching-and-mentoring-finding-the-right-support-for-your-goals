@@ -1,5 +1,4 @@
-Chapter 9: Setting SMART Goals
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting and achieving goals is at the heart of personal and professional growth. In this chapter, we explore the concept of SMART goals and how career coaching and mentoring can assist you in defining and pursuing objectives that are Specific, Measurable, Achievable, Relevant, and Time-bound.
 

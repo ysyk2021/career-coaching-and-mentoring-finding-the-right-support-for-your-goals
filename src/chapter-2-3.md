@@ -1,5 +1,4 @@
-Chapter 3: Common Myths About Coaching and Mentoring
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of career coaching and mentoring, various misconceptions persist, which can impact individuals' decisions and expectations. This chapter aims to debunk some of the most common myths surrounding coaching and mentoring to provide a more accurate understanding of these valuable support systems.
 

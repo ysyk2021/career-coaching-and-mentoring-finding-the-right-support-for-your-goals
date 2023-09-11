@@ -1,5 +1,4 @@
-Chapter 2: Definition and Characteristics of Career Coaching and Mentoring
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Career coaching and mentoring are powerful tools for individuals seeking guidance, development, and support in their professional journeys. This chapter delves into the definitions and key characteristics that distinguish these two valuable forms of career assistance.
 
